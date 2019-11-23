@@ -11,7 +11,7 @@
 
 <div align=center><b>大纪元郑重声明</b></div><br>
 <br>
-<p style="text-align: center;"><img class="unveil" src="../03.jpg"/></p>
+<p style="text-align: center;"><img class="unveil" src="/03.jpg"/></p>
 　　广大的中国民众：共产党的末日就要到了。但是这个邪恶的党（魔教）在历史上却对众生、对神佛犯下了滔天大罪，神一定要清算这个恶魔。 
 <br><br>
 　　如果有一天，神指使人类的谁对共产党清算时，也一定不会放过那些所谓坚定的邪恶党徒。我们郑重声明：所有参加过共产党与共产党其它组织的 (被邪恶打上兽的印记的)人，赶快退出，抹去邪恶的印记。一旦谁对这个魔教清算时，大纪元储存的记录可以为声明退出共产党和共产党其它组织的人作证。 
@@ -20,4 +20,4 @@
 <br><br>
 
 
-<div align=center><a href="../santuiconfirm.md"><font color=#0099ff background=#d3d3d3 size=5 face="黑体">声明三退</font></a></div>
+<div align=center><a href="/santuiconfirm.md"><font color=#0099ff background=#d3d3d3 size=5 face="黑体">声明三退</font></a></div>
