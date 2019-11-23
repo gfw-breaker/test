@@ -4,3 +4,5 @@
 [退党团](santui/tuidangtuan.md?t=11230852) &nbsp;|&nbsp; [退党队](santui/tuidangdui.md?t=11230852) &nbsp;|&nbsp; [退团队](santui/tuituandui.md?t=11230852)<br>
 [退党](santui/tuidang.md?t=11230852) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;|&nbsp; [退团](santui/tuituan.md?t=11230852)  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;|&nbsp; [退队](santui/tuidui.md?t=11230852)
 <br>
+
+<div align="center" style=""><font color=red size=5 face="黑体">已有3.4亿中国人三退</font></div>   
