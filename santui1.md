@@ -20,4 +20,4 @@
 <br><br>
 
 
-<div align=center><a href="../santui/santuiconfirm.md"><font color=#0099ff background=#d3d3d3 size=5 face="黑体">声明三退</font></a></div>
+<div align=center><a href="../santuiconfirm.md"><font color=#0099ff background=#d3d3d3 size=5 face="黑体">声明三退</font></a></div>
