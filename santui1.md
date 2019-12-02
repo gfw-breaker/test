@@ -12,6 +12,9 @@
 **入过什么退什么，入过党请选择退党，入过团的请选择退团，入过队或小时候带过红领巾的请选择退队。*  
 **您在这里“三退”（点点鼠标即可）是安全的，您点击下面的“声明三退”，即可同意“三退”，我们将代您取一个化名，在大纪元“三退网站”声明“三退”。不仅不会影响您的工作与生活，反而会遇难呈祥，逢凶化吉。*
 
+<div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
+<div align=center><a href="/santuiconfirm1.md"><font color=#0099ff background=#d3d3d3 size=5 face="黑体">我要三退</font></a></div>
+
 <div align=center><b>大纪元郑重声明</b></div><br>
 <br>
 <div align="center"><img  src="/03.jpg"/><img  src="/04.jpg"/> </div>
@@ -22,5 +25,4 @@
 　　天网恢恢，善恶分明；苦海有边，生死一念。曾被历史上最邪恶的魔教所欺骗的人，曾被邪恶打上兽的印记的人，请抓住这稍纵即逝的良机！ 
 <br><br>
 
-<div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
-<div align=center><a href="/santuiconfirm1.md"><font color=#0099ff background=#d3d3d3 size=5 face="黑体">我要三退</font></a></div>
+
