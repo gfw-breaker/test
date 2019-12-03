@@ -1,11 +1,9 @@
 <div align=center><b>劝退信</b></div><br>
 
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
----
 
 <div align=center><b><a href="confirmation.md"> * * * 我要三退 * * * </a></b></div>
 
----
 <div align="center"><img  src="/03.jpg"/><img  src="/04.jpg"/> </div>    
 
 共产主义的鼻祖-马克思是一个撒旦教徒（详见《马克思成魔之路》），死后安葬于英国撒旦教墓地，撒旦教的教义就是毁灭全人类。“死后要见马克思”意指死后下地狱去陪它！    
@@ -22,6 +20,7 @@
 **您在这里“三退”（点点鼠标即可）是安全的，您点击下面的“我要三退”，即可同意“三退”，我们将代您取一个化名，在大纪元“三退网站”声明“三退”。不仅不会影响您的工作与生活，反而会遇难呈祥，逢凶化吉。*
 
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
+
 ---
 
 <div align=center><b><a href="confirmation.md"> * * * 我要三退 * * * </a></b></div>
@@ -39,6 +38,7 @@
 <br><br>
 
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
+
 ---
 
 <div align=center><b><a href="confirmation.md"> * * * 我要三退 * * * </a></b></div>
