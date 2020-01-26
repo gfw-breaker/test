@@ -1,4 +1,4 @@
-<div align=center><b>劝退信</b></div><br>
+<div align=center><b>劝退信：人先自救，天再救之</b></div><br>
 
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
 
