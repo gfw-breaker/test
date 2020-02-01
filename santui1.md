@@ -26,7 +26,7 @@
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
 
 ---
-
+<div align=center>请点击下面的“我要三退”</div>
 <div align=center><b><a href="confirmation.md"> * * * 我要三退 * * * </a></b></div>
 
 ---
@@ -44,7 +44,7 @@
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
 
 ---
-
+<div align=center>请点击下面的“我要三退”</div>
 <div align=center><b><a href="confirmation.md"> * * * 我要三退 * * * </a></b></div>
 
 ---
