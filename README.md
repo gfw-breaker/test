@@ -2,7 +2,7 @@
 
 ## 编辑推荐文章专区
 
-## 三退专区：[太紧急了❗️诸葛亮说的瘟疫的大淘汰已经拉开序幕，尽快点开这里，简单填即得到平安果🍎 無需重复📩](https://github.com/begood0513/goodnews/blob/master/quit/letter.md)
+## 三退专区：[太紧急了❗️刘伯温说的人类的瘟疫大淘汰已经拉开序幕，武汉疫情迅速发展，请尽快点开这里，简单填即得到平安果🍎 無需重复📩](https://github.com/begood0513/goodnews/blob/master/quit/letter.md)
 
 ## 视频专区
 
