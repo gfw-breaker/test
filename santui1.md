@@ -1,7 +1,7 @@
 <div align=center><b>劝退信：人先自救，天再救之</b></div><br>
 
-<div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/>请点击“我要三退”</div>
-
+<div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
+<div align=center>请点击下面的“我要三退”</div>
 <div align=center><b><a href="confirmation.md"> * * * 我要三退 * * * </a></b></div><br/>
        
 <div align="center"><img  src="03.jpg"/> &nbsp; <img  src="04.jpg"/> </div>    
